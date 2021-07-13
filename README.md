@@ -5,6 +5,7 @@ Supporting team -
 Institute of Solar Technology - http://istindia.org 
 Academy of EV Technology - http://aevt.org 
 Corporate Partner - VMAXO   - https://vmaxo.com & MLAXI - https://mlaxi.com SEO Partner https://uptiseo.com/ 
+Media Partner https://tdpelmedia.com/ https://uptiseo.w3spaces.com/ 
 
 Subscribe to get the best curated blog posts every week!
 <a href="https://gatetrust.blogspot.com/">gatetrust</a> | 
