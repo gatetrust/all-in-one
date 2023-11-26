@@ -9,13 +9,13 @@ Energy Materials Research Centre - https://emrdc.org
 Corporate Partner - VMAXO   - https://vmaxo.com & MLAXI - https://mlaxi.com SEO Partner https://uptiseo.com/ 
 
 Subscribe to get the best curated blog posts every week!
-<a href="https://installing-solar-pv.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://greenclubi.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://greenprojectsupport.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://istjobboard.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://institute-of-solar-technology.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://solar-energy-training.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://ist-india.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
+<a href="https://installing-solar-pv.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">1</a>
+<a href="https://greenclubi.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">2</a>
+<a href="https://greenprojectsupport.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">3</a>
+<a href="https://istjobboard.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">4</a>
+<a href="https://institute-of-solar-technology.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">5</a>
+<a href="https://solar-energy-training.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">6</a>
+<a href="https://ist-india.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course">7</a>
 
 
 <a href="https://gatetrust.blogspot.com/">gatetrust</a>  
