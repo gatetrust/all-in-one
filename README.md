@@ -16,7 +16,7 @@ Subscribe to get the best curated blog posts every week!
 <a href="https://institute-of-solar-technology.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
 <a href="https://solar-energy-training.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
 <a href="https://ist-india.blogspot.com?u=https://aaiindia.org&k=AI%20MI%20course"></a>
-<a href="https://gatetrust.blogspot.com/">gatetrust</a> | 
+<a href="https://gatetrust.blogspot.com/">gatetrust</a>  
 <a href="https://gpsol.blogspot.com/">gpsol</a> | 
 <a href="https://istpvproject.blogspot.com/">ist pv project</a> | 
 <a href="https://gatejobboard.blogspot.com/">gate jobboard</a> | 
