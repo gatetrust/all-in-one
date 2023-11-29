@@ -619,7 +619,7 @@ Subscribe to get the best curated blog posts every week!
 <a href="https://22-sae-j1772-pdf.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">sae j1772 pdf</a> , 
 <a href="https://22-sae-j1772-standard-download.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">sae j1772 standard download</a> , 
 <a href="https://22-seo-blog-example.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">seo blog example</a> , 
-<a href="https://23-pokemon-bdsp-ev-training.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">https://23 pokemon bdsp ev training</a> , 
+<a href="https://23-pokemon-bdsp-ev-training.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">pokemon bdsp ev training</a> , 
 <a href="https://22-3kw-charger.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">3kw charger</a> , 
 <a href="https://22-bharat-ev-charger-dc-001.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">bharat ev charger dc 001</a> , 
 <a href="https://22-ev-charger-specifications.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">ev charger specifications</a> , 
