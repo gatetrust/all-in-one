@@ -4,8 +4,8 @@ Project developed by GATE Trust - http://gatetrust.org ,
 Supporting team - 
 Institute of Solar Technology - http://istindia.org 
 Academy of EV Technology - http://aevt.org 
-Academy of Artificial Intelligence - https://aaiindia.org 
 Energy Materials Research Centre - https://emrdc.org 
+SR Technologist - https://srtechno.in
 Corporate Partner - VMAXO   - https://vmaxo.com & MLAXI - https://mlaxi.com SEO Partner https://uptiseo.com/ 
 
 Subscribe to get the best curated blog posts every week!
