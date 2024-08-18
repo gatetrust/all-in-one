@@ -8,7 +8,7 @@ Energy Materials Research Centre - https://emrdc.org
 SR Technologist - https://srtechno.in
 EMRC - https://emrdc.org/
 Energy Materials Research Centre - https://www.webwiki.com/emrdc.org
-Corporate Partner - VMAXO   - https://vmaxo.com & MLAXI - https://mlaxi.com SEO Partner https://uptiseo.com/ 
+Corporate Partner - VMAXO   - https://vmaxo.com & SEO Partner https://uptiseo.com/ 
 
 Subscribe to get the best curated blog posts every week!
 <a href="https://www.webwiki.com/srtechno.in">SR Technologist</a> 
