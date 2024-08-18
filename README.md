@@ -25,6 +25,12 @@ Subscribe to get the best curated blog posts every week!
 <a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://srtechno.in">SRT</a>, 
 <a href="https://secure.dbprimary.com/service/util/logout/CookiePolicy.action?backto=https://emrdc.org">EM</a>, 
 <a href="https://secure.dbprimary.com/service/util/logout/CookiePolicy.action?backto=https://srtechno.in">SRT</a>, 
+<a href="https://hjn.secure-dbprimary.com/service/util/logout/CookiePolicy.action?backto=https://srtechno.in">SRT</a>, 
+<a href="https://hjn.secure-dbprimary.com/service/util/logout/CookiePolicy.action?backto=https://emrdc.org">EMRC</a>, 
+<a href="https://gizoogle.net/tranzizzle.php?search=https://emrdc.org">EM</a>, 
+<a href="https://gizoogle.net/tranzizzle.php?search=https://srtechno.in">SR</a>, 
+<a href="https://app.randompicker.com/Info/AccessDenied.aspx?Url=https://emrdc.org">EM</a>, 
+<a href="https://app.randompicker.com/Info/AccessDenied.aspx?Url=https://srtechno.in">SRT</a>, 
 
 
 
