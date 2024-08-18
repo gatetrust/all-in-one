@@ -15,6 +15,10 @@ Subscribe to get the best curated blog posts every week!
 <a href="https://nibbler.co/en_US/reports/srtechno.in#/Test_Page_AmountOfContent">SR Technologist</a>, 
 <a href="https://urlscan.io/result/b17812e7-1fc5-452a-b29e-a189bb5621a4/">SR</a>, 
 <a href="https://urlscan.io/result/ce75fc31-d585-4e09-bbe1-01bc4f2d9997/">EMRC</a>, 
+2024 Update
+<a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://emrdc.org">EMRC</a>
+<a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://srtechno.in">SRT</a>
+
 
 <a href="https://vmaxo.wordpress.com/">Shopee</a> | 
 <a href="http://gatetrust.eklablog.com/	">GATE Trust</a> | 
