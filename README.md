@@ -9,6 +9,7 @@ SR Technologist - https://srtechno.in
 Corporate Partner - VMAXO   - https://vmaxo.com & MLAXI - https://mlaxi.com SEO Partner https://uptiseo.com/ 
 
 Subscribe to get the best curated blog posts every week!
+<a href="https://www.webwiki.com/srtechno.in">SR Technologist</a> 
 <a href="https://nibbler.co/en_US/reports/srtechno.in#/Test_Page_AmountOfContent">SR Technologist</a>, 
 <a href="https://covid--vaccine.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">covid  vaccine , 
 <a href="https://plastic-free-life.blogspot.com/?u=https://aaiindia.org&k=ai%20ml%20training">plastic free life , 
