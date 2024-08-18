@@ -6,6 +6,7 @@ Institute of Solar Technology - http://istindia.org
 Academy of EV Technology - http://aevt.org 
 Energy Materials Research Centre - https://emrdc.org 
 SR Technologist - https://srtechno.in
+Energy Materials Research Centre - https://www.webwiki.com/emrdc.org
 Corporate Partner - VMAXO   - https://vmaxo.com & MLAXI - https://mlaxi.com SEO Partner https://uptiseo.com/ 
 
 Subscribe to get the best curated blog posts every week!
