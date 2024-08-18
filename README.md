@@ -20,9 +20,11 @@ Subscribe to get the best curated blog posts every week!
 2024 Update
 
 
-<a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://emrdc.org">EMRC</a>
-<a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://srtechno.in">SRT</a>
-
+<a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://emrdc.org">EMRC</a>, 
+<a href="https://www.sitelike.org/redir.aspx?url=https://emrdc.org">EM</a>, 
+<a href="https://www.t10.org/cgi-bin/s_t10r.cgi?PrevURL=https://srtechno.in">SRT</a>, 
+<a href="https://secure.dbprimary.com/service/util/logout/CookiePolicy.action?backto=https://emrdc.org">EM</a>, 
+<a href="https://secure.dbprimary.com/service/util/logout/CookiePolicy.action?backto=https://srtechno.in">SRT</a>, 
 
 
 
