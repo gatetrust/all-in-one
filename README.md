@@ -1718,7 +1718,37 @@ Subscribe to get the best curated blog posts every week!
 <a href="https://istindia.org/find/how-do-i-start-a-career-in-solar-energy ">Know More</a>
 <a href="https://istindia.org/find/solar-energy-degree-programs ">Know More</a>
 <a href="https://istindia.org/find/what-jobs-are-in-solar-energy ">Know More</a>
-
+https://srtechno.in/tag.php/surya-ghar-installer-training-online
+https://srtechno.in/tag.php/surya-ghar-installer-training-near-me
+https://srtechno.in/tag.php/surya-ghar-installer-training-free
+https://srtechno.in/tag.php/suryamitra-application-form-online
+https://srtechno.in/tag.php/surya-ghar-installer-training-cost
+https://srtechno.in/tag.php/surya-mitra-training-centre
+https://srtechno.in/tag.php/surya-mitra-training-registration
+https://srtechno.in/tag.php/solar-pv-installer-suryamitra-book-pdf
+https://srtechno.in/tag.php/surya-ghar-installer-training-online-near-me
+https://srtechno.in/tag.php/surya-ghar-installer-training-online-free
+https://srtechno.in/tag.php/surya-ghar-installer-training-online-india
+https://srtechno.in/tag.php/suryamitra-application-form-online
+https://srtechno.in/tag.php/surya-mitra-training-registration
+https://srtechno.in/tag.php/surya-mitra-training-centre
+https://srtechno.in/tag.php/free-government-solar-training
+https://srtechno.in/tag.php/surya-ghar-installer-training-online-free-pdf
+https://srtechno.in/tag.php/surya-ghar-installer-training-online-free-india
+https://srtechno.in/tag.php/surya-ghar-installer-training-online-free-mumbai
+https://srtechno.in/tag.php/suryamitra-application-form-online
+https://srtechno.in/tag.php/free-government-solar-training
+https://srtechno.in/tag.php/free-government-solar-training-pdf
+https://srtechno.in/tag.php/surya-mitra-training-registration
+https://srtechno.in/tag.php/surya-mitra-training-centre
+https://srtechno.in/tag.php/7-days-surya-ghar-installer-training-online
+https://srtechno.in/tag.php/7-days-surya-ghar-installer-training-near-me
+https://srtechno.in/tag.php/7-days-surya-ghar-installer-training-free
+https://srtechno.in/tag.php/free-government-solar-training
+https://srtechno.in/tag.php/solar-pv-installer-(suryamitra)-book-pdf
+https://srtechno.in/tag.php/free-government-solar-training-pdf
+https://srtechno.in/tag.php/surya-mitra-training-centre
+https://srtechno.in/tag.php/solar-panel-training-by-government 
 
 
 <a href="https://vmaxo.wordpress.com/">Shopee</a> | 
